@@ -7,7 +7,7 @@ In the competitive world of Direct-to-Consumer (D2C) apparel brands in India, fi
 
 ## Celebrating Quality and Culture
 
-At [Prindia](https://www.prindia.net), we pride ourselves on celebrating Indian culture and cricket through our high-quality apparel. Each t-shirt, whether it’s a [CR7 t-shirt](https://www.prindia.net/product/cr7-t-shirts), a [Naruto t-shirt](https://www.prindia.net/product/naruto-t-shirts), or a [Zindagi Na Milegi Dobara t-shirt](https://www.prindia.net/product/zindagi-na-milegi-dobara-t-shirts), is meticulously crafted from premium materials to ensure comfort and durability.
+At [Prindia](https://www.prindia.net), we pride ourselves on celebrating Indian culture and cricket through our high-quality apparel. Each t-shirt, whether it’s a [CR7 t-shirt](https://www.prindia.net/product/cr7-t-shirt-siu/), a [Naruto t-shirt](https://www.prindia.net/product/naruto-t-shirt-anime-t-shirt/), or a [Zindagi Na Milegi Dobara t-shirt](https://www.prindia.net/product/bollywood-t-shirt-zindagi-na-milegi-dobara/), is meticulously crafted from premium materials to ensure comfort and durability.
 
 ## Consistent Quality
 
@@ -35,7 +35,7 @@ In today’s fast-paced world, timely delivery is crucial. [Prindia](https://www
 ## Explore Our Collection
 
 We invite you to explore Prindia’s collection and experience the difference. Visit our website [Prindia](https://www.prindia.net) to browse our latest offerings and make a statement with your attire. Check out our specific collections:
-- [CR7 t-shirts]([https://www.prindia.net/product/cr7-t-shirt](https://www.prindia.net/product/cr7-t-shirt-siu/))
+- [CR7 t-shirts](https://www.prindia.net/product/cr7-t-shirt-siu/)
 - [Naruto t-shirts](https://www.prindia.net/product/naruto-t-shirt-anime-t-shirt/)
 - [Zindagi Na Milegi Dobara t-shirts](https://www.prindia.net/product/bollywood-t-shirt-zindagi-na-milegi-dobara/)
 - [Virat Kohli t-shirts](https://www.prindia.net/product/virat-kohli-t-shirt)
